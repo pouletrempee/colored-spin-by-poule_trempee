@@ -30,3 +30,5 @@ To contact me :
 http://tinyurl.com/pouletrempee-contact
 
 **https://www.twitch.tv/poule_trempee**
+
+if you like the game say it in my discord --> http://dsc.gg/pouletrempee
